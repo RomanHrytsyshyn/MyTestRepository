@@ -10,5 +10,5 @@ All across the fields there be
 Prints in silver filigree;
 Print in silver filigree;
 And our mothers always know,
-By the footprints in the snow.
+By the footprints in the snow,
 Where it is the children go.
